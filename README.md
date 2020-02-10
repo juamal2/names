@@ -1,13 +1,9 @@
-Juamal has been added (think its spelled correctly)
 John is here
-
-
-
-
-
 Deng has been added, celebrate
 
+Chris is here in 6th place
+tyler has been added
 
 Raf hes entered the building
 
-Chris is here in 6th place
+this has taken way too long
